@@ -1,4 +1,4 @@
-Oi, eu sou o MAJJIN, mas, pode me chamar de Nicola Latorraca. Sou do Rio de Janeiro e moro em João Pessoa - PB. Me iniciei na [Trybe](https://www.betrybe.com/) em maio de 2022 commo estudante🚀.
+Oi, eu sou o MAJJIN, mas, pode me chamar de Nicola Latorraca. Sou do Rio de Janeiro e moro em João Pessoa - PB. Me iniciei na [Trybe](https://www.betrybe.com/) em maio de 2022 como estudante🚀.
 Fui Durante anos web designer do site Bailedosenxutos.com e de alguns outros sites. Também fui editor e aprensentador, assim como redator nesse site.
 
 Pretendo fazer tudo que está na lista abaixo:
